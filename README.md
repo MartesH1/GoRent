@@ -1,2 +1,2 @@
 # GoRent
-Site sdelali Vanya &amp; Artem
+Site sdelal na 2 kurse
